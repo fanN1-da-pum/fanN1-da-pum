@@ -8,4 +8,5 @@
 <img src="pum_mamae.jpg" width="300">
 "pum me ensinando a ser auruda igual ela"
 -2000
+<img src="yotsuba_looking.gif" width="300">
 vou colocar mais foto dela depois te amo pum
